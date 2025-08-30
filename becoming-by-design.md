@@ -1,4 +1,4 @@
-# 🌿 Becoming by Design | 慧航自成之路
+# 🌿 Becoming by Desig | 慧航自成之路
 
 _A worksheet for intentional transformation, poetic reflection, and legacy cultivation._
 
